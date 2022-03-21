@@ -1,0 +1,2 @@
+# AdvoCare_Innovate
+The AdvoCare innovate is an entity that conducts surveys, studies, research and training across the African continent. Our multidisciplinary team of seasoned African experts, with extensive country experience and top notch skills, is committed to producing quality data based on international standards for evidence-based policies and operational solutions. We provide insights on a myriad of sectors while taking into account cultural and geostrategic contexts as well as local markets’ maturity.
